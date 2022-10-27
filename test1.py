@@ -1,3 +1,4 @@
 kenna is a good computer teacher
-i love him
+i just do appreciayt
 dalu
+exactlp
